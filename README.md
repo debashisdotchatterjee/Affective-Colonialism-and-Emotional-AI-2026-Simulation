@@ -1,0 +1,1 @@
+# Affective-Colonialism-and-Emotional-AI-2026-Simulation
